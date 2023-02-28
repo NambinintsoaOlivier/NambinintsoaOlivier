@@ -5,3 +5,5 @@ Hello
 - To contact me : nambinintsoaolivier25@gmail.com
 
 - More about SAYNA : https://sayna.io/   
+
+to the pleasure of  exchanging and or collaborating  together
